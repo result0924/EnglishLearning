@@ -84,3 +84,48 @@ Can you wake up your dad? (可以幫我叫爸爸起床嗎?)
 Wake up, dad! (爸爸，起床!)
 ```
 
+### 吃早餐
+```
+You wanna get some cereal? (wanna是want to的口語表達 cereal玉米片)
+Yes.
+Stop watching TV and come eat your breakfast. (停止做~動作) stop eating snacks不要再吃零食了
+You like it?
+Yes.
+Do you want some more?
+A little more.
+
+Who wants to eat the fried eggs? (Who wants to 有誰想要?)(fried eggs煎蛋)
+Me!Me!
+I want some fried eggs too.
+How many do you want?
+Two.
+You want them fried or scrambled? (fried 煎/ scrambled 炒)
+Fried.
+You want the yolk to be runny like sunny side up or cooked? (yolk 蛋黃) 
+(sunny side up 是有一面沒有接觸到平底鍋，完整半熟的蛋)
+(cooked指是完全煎熟的狀態)
+
+I want if cooked.
+Okay.
+Wait a minute.
+Here's your favorite! (你最喜歡的來了)
+Don't play with your food. (不要拿~來開玩笑)
+Don't play with your crayon (不要拿著蠟筆搗蛋。)
+Don't play with the spoon. (不要拿著湯匙搗蛋。)
+
+Come site by mommy. (來媽媽旁邊做好。)
+Come site at the table. (來餐桌坐好。)
+Go get your corrective chopsticks. (去把你的筷子矯正器拿過來。)
+Want some more? (要再多吃一點嗎?)
+Is it hot/ spicy/ salty/ biter/ sour? (燙/辣/鹹/苦/酸)
+Let me cool it off if it's too hot. (太燙的話我幫你用涼)
+Do you want to  wash it (kimchi) with water? (要幫你用水洗一下泡菜嗎?)
+Eat a variety of vegetables (蔬菜要均衡的吃)
+Can you peel the egg yourself? (你可以自已剝蛋殼嗎?)
+Eat your egg yolk too. (蛋黃也要吃掉。)
+Don't get around while eating. (吃飯的時候不可以到處走來走去)
+Stop watching TV while eating. (吃飯的時候不要看電視)
+Don't open your mouth while chewing. (吃飯的時候不要張開嘴巴)
+Don't lie down right after a meal. (吃完飯不要馬上躺下來睡覺)
+```
+
