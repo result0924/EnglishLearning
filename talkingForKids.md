@@ -14,35 +14,33 @@ Okay.
 suit yourself. (Do whatever you want心裡不願意但隨你高興就好的意思)
 I won't wake you up anymore.
 I'm up. mommy.
-That's my girl. (對嘛~好乖好乖)
+That's my girl. 對嘛~好乖好乖
 
-Let's make your bed first. 
-(Let's 可以當作「一起~，必須要~」的意思。 要邀請孩子一起做什麼的時候，請在Let's後面放入動詞)
-Good girl~
-(Good girl與前面提到的 That's my girl.意思是相同的。)
-Let's go for a pee.(要不要去尿尿?)
+Let's make your bed first. (Let's 可以當作「一起~，必須要~」的意思。 要邀請孩子一起做什麼的時候，請在Let's後面放入動詞)
+Good girl~ (Good girl與前面提到的 That's my girl.意思是相同的。)
+Let's go for a pee. 要不要去尿尿?
 
-Do whatever you want. (隨便你吧。)
-I'm not gonna wake you up.(我不會再叫你起床了)
+Do whatever you want. 隨便你吧。
+I'm not gonna wake you up. 我不會再叫你起床了
 *gonna = going to
 
 Can I sleep five more minutes, please?
 
-Let's see who gets up first.(我們來比賽看誰先起床。)
+Let's see who gets up first. 我們來比賽看誰先起床。
 
-I'll tickle you if you don't wake up.(再不起床要搔你癢囉!)
+I'll tickle you if you don't wake up. 再不起床要搔你癢囉!
 
-I'm awake(我起床了)
+I'm awake. 我起床了 
 
 你自已起床的嗎?
 You get up all by yourself?
 Do you get up all by yourself?
 
-Why are you up so early? (怎麼那麼早起床?)
+Why are you up so early? 怎麼那麼早起床?
 
-Was it not chilly at night? (晚上不是很冷嗎?)
+Was it not chilly at night? 晚上不是很冷嗎?
 
-Stretch you body. (伸伸懶腰吧!)
+Stretch you body. 伸伸懶腰吧!
 ```
 
 ### 早安問候
@@ -64,24 +62,24 @@ I can't open my eyes. (I can't keep my eyes open. 我的眼睛睜不開)
 I'm still sleepy.
 I want to sleep more.
 You'll be late for school.
-If you get ready, I'll give you a candy. (全部準備好的話，就給你糖過)
-If you have breakfast, I'll give you a jelly. (如果你吃早餐的話，就給你果陳)
-If you stop crying, I'll take you out to the playground (如果你不哭的話，我就帶你去遊樂場)
+If you get ready, I'll give you a candy. 全部準備好的話，就給你糖果
+If you have breakfast, I'll give you a jelly. 如果你吃早餐的話，就給你果凍
+If you stop crying, I'll take you out to the playground 如果你不哭的話，我就帶你去遊樂場
 Candy?
 Yes.
 Okay.
-Let's take breakfast now. (take breakfast or have breakfast吃早餐)
+Let's take breakfast now. take breakfast or have breakfast吃早餐
 
-Did you have a good night sleep? (昨晚睡得好嗎?)
-Are you awake already? (已經起床啦?)
-How are you feeling this morning? (今天早上心情如何呀?)
-Why do you look grumpy this morning? (為什麼一大早就心情不好?)
-Did you have sweet dreams? (昨晚作好夢了嗎?)
-Did you have a nightmare? (昨晚作惡夢了嗎?)
-You should say, "Good morning!" (你要說早安呀)
-Give me a hug, sweetie. (來個擁抱吧，甜心!)
-Can you wake up your dad? (可以幫我叫爸爸起床嗎?)
-Wake up, dad! (爸爸，起床!)
+Did you have a good night sleep? 昨晚睡得好嗎?
+Are you awake already? 已經起床啦?
+How are you feeling this morning? 今天早上心情如何呀?
+Why do you look grumpy this morning? 為什麼一大早就心情不好?
+Did you have sweet dreams? 昨晚作好夢了嗎?
+Did you have a nightmare? 昨晚作惡夢了嗎?
+You should say, "Good morning!" 你要說早安呀
+Give me a hug, sweetie. 來個擁抱吧，甜心!
+Can you wake up your dad? 可以幫我叫爸爸起床嗎?
+Wake up, dad! 爸爸，起床!
 ```
 
 ### 吃早餐
@@ -108,24 +106,56 @@ You want the yolk to be runny like sunny side up or cooked? (yolk 蛋黃)
 I want if cooked.
 Okay.
 Wait a minute.
-Here's your favorite! (你最喜歡的來了)
-Don't play with your food. (不要拿~來開玩笑)
-Don't play with your crayon (不要拿著蠟筆搗蛋。)
-Don't play with the spoon. (不要拿著湯匙搗蛋。)
+Here's your favorite! 你最喜歡的來了
+Don't play with your food. 不要拿~來開玩笑
+Don't play with your crayon 不要拿著蠟筆搗蛋。
+Don't play with the spoon. 不要拿著湯匙搗蛋。
 
-Come site by mommy. (來媽媽旁邊做好。)
-Come site at the table. (來餐桌坐好。)
-Go get your corrective chopsticks. (去把你的筷子矯正器拿過來。)
-Want some more? (要再多吃一點嗎?)
+Come site by mommy. 來媽媽旁邊做好。
+Come site at the table. 來餐桌坐好。
+Go get your corrective chopsticks. 去把你的筷子矯正器拿過來。
+Want some more? 要再多吃一點嗎?
 Is it hot/ spicy/ salty/ biter/ sour? (燙/辣/鹹/苦/酸)
-Let me cool it off if it's too hot. (太燙的話我幫你用涼)
-Do you want to  wash it (kimchi) with water? (要幫你用水洗一下泡菜嗎?)
-Eat a variety of vegetables (蔬菜要均衡的吃)
-Can you peel the egg yourself? (你可以自已剝蛋殼嗎?)
-Eat your egg yolk too. (蛋黃也要吃掉。)
-Don't get around while eating. (吃飯的時候不可以到處走來走去)
-Stop watching TV while eating. (吃飯的時候不要看電視)
-Don't open your mouth while chewing. (吃飯的時候不要張開嘴巴)
-Don't lie down right after a meal. (吃完飯不要馬上躺下來睡覺)
+Let me cool it off if it's too hot. 太燙的話我幫你用涼
+Do you want to  wash it (kimchi) with water? 要幫你用水洗一下泡菜嗎?
+Eat a variety of vegetables 蔬菜要均衡的吃
+Can you peel the egg yourself? 你可以自已剝蛋殼嗎?
+Eat your egg yolk too. 蛋黃也要吃掉。
+Don't get around while eating. 吃飯的時候不可以到處走來走去
+Stop watching TV while eating. 吃飯的時候不要看電視
+Don't open your mouth while chewing. 吃飯的時候不要張開嘴巴
+Don't lie down right after a meal. 吃完飯不要馬上躺下來睡覺
 ```
 
+### 刷牙
+```
+Anna~
+It's time to go brush your teeth. (It is time to ~是指「什麼時間到了~」)
+I don't want to.
+You should brush your teeth after you eat. (You should~必須~才行、必須要~才可以、常用於勸說小孩子時)
+
+Squeeze a little toothpaste onto your toothbrush (squeeze「用手緊緊地抓住」擠，是在做料理時常用到的單字) 在牙刷上面擠一點牙膏
+Don't leave the water running 不要讓水一直流
+Say Ah~ 啊~把嘴巴張開
+Brush up, brush down. 上上下下地刷
+Brush back and forth. 前前後後地刷
+
+Brush all around. 均勻地刷、全部都要刷到
+We should brush for 3 min.
+Good girl.
+Now rinse your mouth. (rinse 用水漂洗) 現在可以嗽口了
+Don't swallow. (swallow「吞」) 不要吞下去
+Spit it out. 吐掉
+
+You have to brush your teeth at least 2 minutes. 刷牙至少要刷2分鐘
+We gotta brush out teeth 3 times a day. 一天至少要刷3次牙
+Oh no, you got a cavity! 噢不，你蛀牙了!
+There are some germs! Let's kick them out! 有細菌，我們一起把它消滅。
+Don't put too much toothpaste. 不要擠太多牙膏
+Just put a small dab of toothpaste on your tooth brush. 只要擠一點牙膏在牙刷上就好了
+Tilt your head back, and open your mouth saying "ah" 把頭往後仰，啊~把嘴巴張開
+Did you floss? 你用牙線了嗎?
+Don't forget to gargle. 別忘了要嗽口
+Spit it out into the sink. 吐在洗手台
+Wipe your mouth. 把嘴巴擦乾淨
+```
