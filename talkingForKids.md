@@ -159,3 +159,49 @@ Don't forget to gargle. 別忘了要嗽口
 Spit it out into the sink. 吐在洗手台
 Wipe your mouth. 把嘴巴擦乾淨
 ```
+
+### 洗臉
+```
+Roll up your sleeves, or you'll get wet. (~or you'll get wet 「如果你不~你就會被沾濕」) 把袖子捲起來，不然會被沾濕
+Like this? 像這樣嗎?
+Good girl.
+Wash your hands first.
+Hand me the soap mommy. (Hand me 在此是用作「傳遞的動詞」)
+What's the magic word? 用來教導逆敬語或者謙讓語時所使用的句子
+Please~~
+
+Bubble Bubble 泡沫
+The foam is still on your forehead. (foam 泡沫) 妳額頭上還有泡泡。
+Here?
+Rinse it with warm water (with warm water要用溫水洗乾淨) 用溫水洗乾淨吧
+Splash Splash (濺)
+
+I'm done, mommy.
+GOod.
+I'll get you a towel.
+Let's put some lotion on your face. (put on 除了可以用在穿衣服，塗抹化妝品的時候也可以使用) 塗一些乳液在臉上吧
+You look so pretty. (也可以說成You look so lovely)
+
+More Expressions
+put the towel around your neck. 用毛巾把脖子圍起來吧
+Blow your nose. 擤一下鼻子
+There's still a booger in your nose.  還有鼻屎呢
+Let's get rid of your eye boogers. 把眼屎清乾淨吧
+Wet your hands before adding snap. 搓肥皂泡泡之前要把手沾濕才行
+
+Rub your hands together. 雙手要互相搓揉
+You still have soap on your cheek. 你的臉頰上還有泡沫
+Rinse your hands well under running water. 用水沖洗乾淨
+You're getting your sleeves wet. 你的袖子要濕掉了
+Eek, you got all wet. 唉，都濕掉了呢
+
+Hang it up . 把毛巾掛好
+You droped the towel. 你把毛巾弄掉了
+Dry your hands with the towel when you are out. 出來之前用毛巾把手擦乾淨
+Did you wash your hands with soap? 有用肥皂洗手嗎
+Let's put on some lotion. 我們來擦乳液吧
+Put some lotion on your face. 塗一些乳液在臉上
+Rub it well. 要好好地搓唷
+Be careful not to get it in your eyes. 小心不要跑到眼睛裡
+```
+
